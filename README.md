@@ -1,6 +1,6 @@
 ### Hey! I'm April
 
-- 🔭 I’m currently working on:
+- 🔭 I’m currently working on
   - Minecraft stuff
 - 👯 I’m looking to collaborate on
   - Anything! Just message me :)
